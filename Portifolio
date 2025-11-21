@@ -62,7 +62,7 @@ Tenho experiência forte em atendimento, investigação, análise operacional e 
 ## 📬 Como falar comigo
 - *GitHub:* https://github.com/pedrogaldino-tech  
 - *LinkedIn:* https://www.linkedin.com/in/pedro-galdino  
-- *E-mail:* adicione seu e-mail aqui
+- *E-mail: Pedrogaldinoo@outlook.com
 
 ---
 
